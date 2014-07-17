@@ -15,7 +15,6 @@ http://www.youtube.com/watch?v=FU31Bp67eHc
 
 http://www.youtube.com/watch?v=zemIybALxAk
 
-official thread forum:
+Official thread forum:
+
 http://ledforum.ru/topic1761.html
-
-
